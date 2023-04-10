@@ -1,0 +1,2 @@
+# SkyRace
+Politique de confidentialité
